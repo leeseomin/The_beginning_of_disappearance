@@ -1,4 +1,4 @@
-# The beginning of disappearance
+# "The beginning of disappearance" art project
 
 
 ### The beginning of disappearance 1
