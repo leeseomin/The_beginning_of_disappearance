@@ -66,7 +66,6 @@
   
 ### The beginning of disappearance 14
 
- <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/14.png" width="2000">  
  
   <br/><br/>  
   
