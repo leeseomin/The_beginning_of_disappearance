@@ -40,6 +40,12 @@
   <br/><br/>
 
 
+### The beginning of disappearance 9
+
+ <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/9.png" width="2000">  
+ 
+  <br/><br/>
+
 
  ### Author and Creator
  
