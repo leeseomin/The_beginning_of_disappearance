@@ -20,6 +20,18 @@
  <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/5.png" width="2000">  
  
   <br/><br/>
+  
+### The beginning of disappearance 6
+
+ <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/6.png" width="2000">  
+ 
+  <br/><br/>
+
+### The beginning of disappearance 8
+
+ <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/8.png" width="2000">  
+ 
+  <br/><br/>
 
 
 
