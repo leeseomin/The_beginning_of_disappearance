@@ -85,6 +85,12 @@
  <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/15.png" width="2000">  
  
   <br/><br/>  
+
+### The beginning of disappearance 17
+
+ <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/17c.png" width="2000">  
+ 
+  <br/><br/>  
   
   
 
