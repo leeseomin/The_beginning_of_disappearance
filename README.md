@@ -10,7 +10,7 @@
 ### The beginning of disappearance 3
 
  <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/3.png" width="2000">  
- 
+https://rarible.com/token/0xF6793dA657495ffeFF9Ee6350824910Abc21356C:64669575457772622843733520472986026667877001999885492881277833910229705687233?tab=details 
   <br/><br/>
 
 
