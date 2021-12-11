@@ -126,6 +126,11 @@ https://async.art/art/master/0xb6dae651468e9593e4581705a09c10a76ac1e0c8-4445
  
   <br/><br/>   
   
+### The beginning of disappearance 23
+
+ <img src="https://github.com/leeseomin/The_beginning_of_disappearance/blob/main/ART/23b.png" width="2000">  
+ 
+  <br/><br/>   
   
 
  ### Author and Creator
